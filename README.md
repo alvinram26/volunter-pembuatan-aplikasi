@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Alvin Rahman, [Linkedin](https://www.linkedin.com/in/alvin-rahman-al-musyaffa-65169b170/).
